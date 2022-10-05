@@ -2,9 +2,9 @@
 - 👀 I’m interested in philosophy, physics, quantitative research methodology and biostatistics.
 - 🌱 I’m currently working as a statistics consultant at the Institute of Physiotherapy, Zurich University of
 Applied Sciences.
-- ❤️: Like running.
+- ❤️ I like 🏃.
 
-- :office: André Meichtry, Dozent Institut für Physiotherapie, Zürcher Hochschule für Angewandte Wissenschaften ZHAW, Technikumstr. 71, 8401 Winterthur, Tel: 058 934 64 86
+- 🏢 André Meichtry, Dozent Institut für Physiotherapie, Zürcher Hochschule für Angewandte Wissenschaften ZHAW, Technikumstr. 71, 8401 Winterthur, Tel: 058 934 64 86
 
 
 
