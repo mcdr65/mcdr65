@@ -5,6 +5,8 @@ Applied Sciences.
 - ❤️ I like 🏃
 
 
+
+
 - 🏢 André Meichtry, Dozent Institut für Physiotherapie, Zürcher Hochschule für Angewandte Wissenschaften ZHAW, Technikumstr. 71, 8401 Winterthur, Tel: 058 934 64 86
 
 
