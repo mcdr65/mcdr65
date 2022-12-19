@@ -7,7 +7,7 @@ Applied Sciences.
 ****************************
 🏢 André Meichtry\
 Bernstrasse 71\
-3175 Flamatt\ 
+3175 Flamatt 
 
 
 <!---
