@@ -4,10 +4,6 @@
 Applied Sciences.
 - ❤️ I like 🏃
 
-****************************
-🏢 André Meichtry\
-Bernstrasse 71\
-3175 Flamatt 
 
 
 <!---
